@@ -3,7 +3,8 @@
 
 hallo we are emptytenement!
 
-we'd recommend you reading the [gallery](https://emptytenement-responds.straw.page/) before sending us anything on straw! or go ask something on neospring idk!
+we'd recommend you reading the [gallery](https://emptytenement-responds.straw.page/) before sending us anything on straw! 
+or go ask something on neospring idk!
 thats it have a good day! also here are some stamps and strawpage drawings we made :3 
 
 ![lovepluraldivider](https://github.com/user-attachments/assets/2b6965da-9a6f-4f58-8648-2e4203847b0c)
