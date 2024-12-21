@@ -1,5 +1,6 @@
 ![colorenanbdivider](https://github.com/user-attachments/assets/f4d69a71-5e74-452c-ab98-14f00819541c)
 
+(we will add everyone's rentries here eventually, please wait)
 
 hallo we are emptytenement!
 
@@ -8,6 +9,8 @@ we'd recommend you reading the [gallery](https://emptytenement-responds.straw.pa
 or go ask something on neospring idk!
 
 thats it have a good day! also here are some stamps and strawpage drawings we made :3 
+
+
 
 ![lovepluraldivider](https://github.com/user-attachments/assets/2b6965da-9a6f-4f58-8648-2e4203847b0c)
 
