@@ -1,7 +1,5 @@
 ![colorenanbdivider](https://github.com/user-attachments/assets/f4d69a71-5e74-452c-ab98-14f00819541c)
 
-(we will add everyone's rentries here eventually, please wait)
-
 hallo we are emptytenement!
 
 we'd recommend you reading the [gallery](https://emptytenement-responds.straw.page/) before sending us anything on straw! 
@@ -23,5 +21,5 @@ thats it have a good day! also here are some stamps and strawpage drawings we ma
 ![medianstamp](https://github.com/user-attachments/assets/ea0d2e66-e447-463a-9b03-95d2fa079f66)
 ![subsysstampalt](https://github.com/user-attachments/assets/4ae9a47a-0dd1-42d5-803a-8a15882a0e62)
 
-![strawpagedimen](https://github.com/user-attachments/assets/36a7dc4c-9c9e-433c-bf0d-91752e137d3b)
-![a2](https://github.com/user-attachments/assets/b85e08f8-b544-4192-9501-a0846fcac7cb)
+
+![lovepluraldivider](https://github.com/user-attachments/assets/2b6965da-9a6f-4f58-8648-2e4203847b0c)
