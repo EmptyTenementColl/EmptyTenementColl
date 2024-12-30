@@ -4,7 +4,7 @@ hallo we are emptytenement!
 
 please don't follow if you haven't talked to us before! /nm
 
-we'd recommend you reading the [gallery](https://emptytenement-responds.straw.page/) 
+we'd recommend you reading the [gallery](https://emptytenement-responds.straw.page/) before sending anything on straw!
 
 or go ask something on neospring idk!
 
