@@ -4,7 +4,7 @@ hallo we are emptytenement!
 
 please don't follow if you haven't talked to us before! /nm
 
-we'd recommend you reading the [gallery](https://emptytenement-responds.straw.page/) before sending us anything on straw! (also please read Stocking's [rentry](https://rentry.co/WhoArtInHell) before interacting with them!)
+we'd recommend you reading the [gallery](https://emptytenement-responds.straw.page/) 
 
 or go ask something on neospring idk!
 
