@@ -6,9 +6,9 @@ please don't follow if you haven't talked to us before! /nm
 
 we'd recommend you reading the [gallery](https://emptytenement-responds.straw.page/) before sending anything on straw!
 
-or go ask something on neospring idk!
+individual members' rentries:
 
-thats it have a good day! also here are some stamps and strawpage drawings we made :3 
+[ENA](https://rentry.co/ENAnathesilly) [Stocking](https://rentry.co/WhoArtInHell) [Dimen](https://rentry.co/Pierrots-Page) [Madotsuki](https://rentry.co/MyDreamDiaryPage)
 
 
 
