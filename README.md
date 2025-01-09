@@ -6,10 +6,6 @@ please don't follow if you haven't talked to us before! /nm
 
 we'd recommend you reading the [gallery](https://emptytenement-responds.straw.page/) before sending anything on straw!
 
-individual members' rentries:
-
-[ENA](https://rentry.co/ENAnathesilly) [Stocking](https://rentry.co/WhoArtInHell) [Dimen](https://rentry.co/Pierrots-Page) [Madotsuki](https://rentry.co/MyDreamDiaryPage)
-
 
 
 ![lovepluraldivider](https://github.com/user-attachments/assets/2b6965da-9a6f-4f58-8648-2e4203847b0c)
