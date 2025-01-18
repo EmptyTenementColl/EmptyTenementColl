@@ -6,6 +6,7 @@ please don't follow if you haven't talked to us before! /nm
 
 we'd recommend you reading the [gallery](https://emptytenement-responds.straw.page/) before sending anything on straw!
 
+[mado](https://rentry.co/MyDreamDiaryPage) and [ENA](https://rentry.co/ENAnathesilly)'s pages!
 
 
 ![lovepluraldivider](https://github.com/user-attachments/assets/2b6965da-9a6f-4f58-8648-2e4203847b0c)
