@@ -4,8 +4,6 @@ hallo we are emptytenement!
 
 please don't follow if you haven't talked to us before! /nm
 
-we'd recommend you reading the [gallery](https://emptytenement-responds.straw.page/) before sending anything on straw!
-
 [mado](https://rentry.co/MyDreamDiaryPage) and [ENA](https://rentry.co/ENAnathesilly)'s pages!
 
 
